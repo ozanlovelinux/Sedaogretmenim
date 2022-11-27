@@ -1,1 +1,1 @@
-# herseyicintesekkurler.github.io
+Seda Öğretmenim'e özel web sitesi :)
